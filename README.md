@@ -1,2 +1,2 @@
 # SEXROOMGM
-Divierte con infinidad de bosses que te haran pasar un buen rato!!!!
+Have fun with countless bosses that will make you have a good time!!!!
